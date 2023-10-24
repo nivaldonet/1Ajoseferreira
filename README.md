@@ -1,0 +1,2 @@
+# 1Ajoseferreira
+Pensamento Cumputacional
